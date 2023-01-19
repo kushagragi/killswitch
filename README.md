@@ -1,2 +1,0 @@
-# portfilo
-Vüsal Hüseynov - Portfilo 
